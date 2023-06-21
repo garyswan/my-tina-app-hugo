@@ -11,7 +11,7 @@ overline = ""
 src = "/uploads/img_4084.jpg"
 subheading = "Have fun and get fit with friends!"
 summary = ""
-title = "All Sportsxx"
+title = "All Sportsyy"
 
 [form]
 form = ""
@@ -27,6 +27,7 @@ srcs = [
 ]
 template = "gallery"
 +++
+
 
 
 **All Sports**
