@@ -63,3 +63,4 @@ To learn more about Tina, take a look at the following resources:
 - [Getting Started Guide](https://tina.io/guides/tinacms/non-react-based-ssg/guide/)
 
 You can check out the [Tina GitHub repository](https://github.com/tinacms/tinacms) - your feedback and contributions are welcome!
+# my-tina-app-hugo
