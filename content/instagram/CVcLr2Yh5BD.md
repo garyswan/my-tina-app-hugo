@@ -1,0 +1,7 @@
++++
+id = "CVcLr2Yh5BD"
+date = "2021-10-25T23:10:40.590Z"
+src = "instagram/CVcLr2Yh5BD.jpg"
+title = "2692078069103431747"
++++
+Sunshine Butterflies had a great night celebrating with our partners and friends from @stay\_propertygroup and @teambodycorporate CEO Leanne Walsh and Damien Walsh along with our talented landscaping crew and Community Development team attended the Building Launch Party and Charity Auction at 195 Weyba Road. It was a wonderful event with some amazing auction items donated by a variety of local businesses. They raised a whopping $10,350 for Sunshine Butterflies! These funds will go directly to our 'Forever Homes' fundraiser, which will provide supported homes that will ensure the most vulnerable members of our community, find their 'Forever Homes'. Sunshine Butterflies was then presented with a cheque from Team Body Corporate for their ‘Guess Who’s Coming To Town’ competition along with the winner Georgie Smith. We enjoyed a wonderful evening with the teams from Stay Property and Team Body corp, as well as our wonderful community who dug deep to support Sunshine Butterflies. Make sure you pop into their new space and grab a coffee from Perky Turkey Coffee Co. Noosa Thank you to Stay Property Group and Team BodyCorp for hosting this event and to all the sponsors and community who got involved.

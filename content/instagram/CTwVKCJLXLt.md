@@ -1,0 +1,7 @@
++++
+id = "CTwVKCJLXLt"
+date = "2021-09-30T02:39:56.480Z"
+src = "instagram/CTwVKCJLXLt.jpg"
+title = "2661720428248920813"
++++
+Exciting things are happening at ‘Our Backyard’…😃 The construction of Sunshine Butterflies new accessible playground at ‘Our Backyard’ starts today!🎉 We have had this project in the works for a while and can’t wait to have this playground available for use soon! This fun and versatile space will provide the perfect environment to deliver a variety of life-changing therapies, activities and play for both parents and children to enjoy. Some activities we are looking forward to delivering from this space include, Early Intervention activities, our weekly @sunshinecoastplaygrouphub and Sunshine Butterflies Kids Birthday parties!🎉 It will also be so beneficial to have an updated and accessible playground when we start hosting some new and exciting events for the community. The team at @build4u\_sunshine\_coast and @sunshine\_gardens are working together to get this playground up and running. Demolition of our playground has already begun and we can’t wait to see its progress. This project wouldn’t be possible without the support from @whitehousefoundation\_au, the @cocacolaau Foundation and @primaryclubaust. Stay updated on our socials to see this new playground come to life.😃 Join our Facebook group https://www.facebook.com/groups/374980927283851 for more updates on when our weekly playgroup will return!

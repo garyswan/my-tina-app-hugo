@@ -1,0 +1,7 @@
++++
+id = "CUUbU_gBrGc"
+date = "2021-09-30T02:39:56.463Z"
+src = "instagram/CUUbU_gBrGc.jpg"
+title = "2671880668765925788"
++++
+Sunshine Butterflies ‘Social Siblings' had a fabulous adventure to @wildlifehqzoo for this month’s social group activity!🌿🐨 Our Sibs and staff took off on a wonderful journey down to the Big Pineapple to visit this popular wildlife sanctuary. Wildlife HQ is home to over 100 native and exotic animal species from around the world! They are focused on providing lifetime care for animals whilst educating families and children about the environment and conservation. Sunshine Butterflies ‘Social Sibs’ were very excited to get up close and personal with a variety of animals, including a very big friendly snake. Thanks to Wildlife HQ for hosting us! 'Social Siblings' is a monthly social and recreational club for brothers and sisters of those living with disability. Sunshine Butterflies identified a need to develop a fun day out to give siblings on the Sunshine Coast a regular break and created a Social Siblings club to provide better support for siblings. 'Social Siblings'provides an environment where kids can be open and engaged with other children who live in similar situations. Thanks to @socfstories for supporting our popular ‘Social Siblings club. 💜 For more information on 'Social Siblings' please contact us on 07 5470 2830 Or email admin@sunshinebutterflies.com.au.

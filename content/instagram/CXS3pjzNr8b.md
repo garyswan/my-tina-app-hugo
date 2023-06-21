@@ -1,0 +1,7 @@
++++
+id = "CXS3pjzNr8b"
+date = "2021-12-12T02:25:27.914Z"
+src = "instagram/CXS3pjzNr8b.jpg"
+title = "2725485473009418011"
++++
+Sunshine Butterflies 2021 ‘Farmyard Cooking School’ Cookbook is on SALE now! Members in this program have been working on these cookbooks all year and are so excited to see them come to life! Our 'Farmyard Cooking School' cookbook contains a variety of unique and mouth-watering recipes created and perfected by Sunshine Butterflies Cooking School program. It includes a collection of snacks, mains, sweets and spreads as well as educational content about ‘Our Backyard’ and helpful tips and tricks. A special thank you to @herbalifeanz for making this cookbook possible. We have some great news for our community! We are now selling these cookbooks at 5 retail stores in Noosa, just in time for Christmas! We think these are the best presents and cannot wait to give them to all our family and friends Sunshine Butterflies cookbook retails at $20.00. These books can be purchased at Sunshine Butterflies or from one of our fabulous stockists: @perkyturkeycoffeeco Tewantin Newsagent @bluebrownbag News Extra Noosaville Tourism Noosa Information Centre Or you can purchase the E-Book which is available on Amazon. 100% of profits from this cookbook will go towards supporting those living with disability and their families. 💜

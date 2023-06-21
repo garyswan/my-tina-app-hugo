@@ -1,0 +1,7 @@
++++
+id = "CWIMmgir_09"
+date = "2021-11-17T03:39:51.197Z"
+src = "instagram/CWIMmgir_09.jpg"
+title = "2704466999075929405"
++++
+We are thrilled to introduce another one of Sunshine Butterflies ‘Walk in Wings’ Corporate Partners, @teambodycorporate !🦋👏 It’s great to have TEAM Body Corporate (Formally Noosa District Body Corporate Management) on board for this event. 😊 Team Body Corporate are committed to delivering efficient, professional and personal service to their clients. This level of management provides the lot owner with peace of mind that their interests are protected and managed to the highest of standards, and all at a reasonable cost. They have a 30-year history of excellence and a reputation that ensures most of their new clients come from word-of-mouth recommendations. Team Body Corporate’s dedication to providing consistent, high-quality service and optimising individuals buildings assets is what sets them apart. Their head office is located in Noosa however they manage a wide variety of Community Title Schemes throughout South East Queensland. If you’re looking for a body corporate management team to manage your scheme or to assist with the establishment of a new scheme, then contact them today! Meet Team Body Corporate next Friday 19th November at Walk in Wings from 6 – 8:30 am. To find out more about Walk in Wings please visit: https://www.walkinwings.com.au/ Or to register: https://www.trybooking.com/events/landing?eid=792972& We can’t wait to see you there!😃

@@ -1,0 +1,7 @@
++++
+id = "CVNCTDABXKA"
+date = "2021-10-25T23:10:40.604Z"
+src = "instagram/CVNCTDABXKA.jpg"
+title = "2687814657594716800"
++++
+Meet Sunshine Butterflies 2021 Walk in Wings sponsors and partners! We are so excited to present the team that are supporting Sunshine Butterflies first-ever Walk in Wings! A huge thank you to @cerge\_app , @mcgrathnoosa, @teambodycorporate, @hot91sunshinecoast, our amazing Ambassadors @jimmyandtam winners of The Block 2020, @whitehouseinternational, Sunshine Gardens, @ikatanspanoosa and @headsofnoosa. What an amazing bunch! We had a great day hosting a delicious morning tea at 'Our Backyard' for all our sponsors and partners. Our guests all enjoyed our famous Butterfly scones, an event information session and a very special performance by our ‘Rockability’ program. We are so grateful to have such valued sponsors and partners who have come on board to support this amazing event. Walk in Wings by Sunshine Butterflies, proudly brought you by Cerge Your digital concierge is an all-inclusive accessible 1.5 km walk along the Noosa river. Walk in wings breaks down barriers and elevates awareness for our neighbours and friends living with disability. Come and join us on Friday 19th November to celebrate all abilities in our community. We hope you are getting as excited about this event as we are!! For more information please visit the link in our bio.

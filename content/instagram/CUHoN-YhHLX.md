@@ -1,0 +1,7 @@
++++
+id = "CUHoN-YhHLX"
+date = "2021-09-30T02:39:56.468Z"
+src = "instagram/CUHoN-YhHLX.jpg"
+title = "2668278186437276375"
++++
+Sunshine Butterflies new ‘Purple Thumbs’ program space coming together beautifully. 💜🌱 There's not long to go now before this innovative gardening program begins. Take a look to see a sneak peek of the new ‘Our Backyard’ Learning Gardens and Horticultural classroom that will be a huge part of our ‘Purple Thumbs’ program. We love watching this space come to life with so many herbs and flowers starting to sprout. 🌿🌹 Sunshine Butterflies 'Purple Thumbs' is an educational gardening program where participants learn about biology, plants, food and nutrition, the environment and develop teamwork skills by growing a garden together. We still have spots available for this brand new program at Sunshine Butterflies! PROGRAM DETAILS: When: Tuesday’s (beginning October 5th) Where: ‘Our Backyard’ 468 Mckinnon Drive, Cooroibah. Time: 9-3PM (for 11 weeks). Transport: Pick up/drop off available on enquiry. Cost: As per the NDIS price guide. If you are of post-school age and living with disability and want to be part of this awesome new program, contact Sunshine Butterflies today! 😃 Please send all expressions of interest to admin@sunshinebutterflies.com.au or call us on 07 5470 2830.

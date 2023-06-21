@@ -1,0 +1,7 @@
++++
+id = "CXamCUBNHP9"
+date = "2022-01-18T01:25:54.951Z"
+src = "instagram/CXamCUBNHP9.jpg"
+title = "2727659809027683325"
++++
+Today Sunshine Butterflies ‘Farmyard Cooking School’ celebrated the official launch of their 2021 Cookbook! We had a fabulous time celebrating with delicious treats and a book signing from our Cooking School Chefs! We welcomed representatives from @herbalifeanz out to ‘Our Backyard’ to present our members with their cookbooks! It was a special moment to watch our members open their cookbooks for the very first time and see what they have created. We are so proud of everyone involved in the creation of Sunshine Butterflies cookbook! We are so appreciative of Herbalife Nutrition Foundation who have helped us bring this cookbook to life for the second year in a row. Their support for our cooking and nutrition program has been absolutely life-changing A huge shoutout to our Cooking Program Leader Leesa, who has brought such passion, skill and love into the production of this cookbook. These books can be purchased at Sunshine Butterflies or from one of our fabulous stockists: @perkyturkeycoffeeco Tewantin Newsagency @bluebrownbag News Extra Noosaville Tourism Noosa Information Centre Or you can purchase the E-Book which is available on Amazon. 100% of profits from this cookbook will go towards supporting those living with disability and their families.💜

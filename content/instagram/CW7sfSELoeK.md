@@ -1,0 +1,7 @@
++++
+id = "CW7sfSELoeK"
+date = "2021-12-03T01:07:00.909Z"
+src = "instagram/CW7sfSELoeK.jpg"
+title = "2718962463796004746"
++++
+A huge thank you to our wonderful friends and partners @stay\_propertygroup for the amazing donation from their recent charity fundraiser!🥳👏 Last month Stay Property Group hosted a huge charity auction in their new space at 195 Weyba Road. We were so thrilled to be chosen as the beneficiary for this event! Thanks to the community who rallied around this awesome fundraiser and dug deep to bid on so many amazing auction items! Through this auction, Stay Property Group raised $14,450 for Sunshine Butterflies! These funds will be going to our 'Forever Homes' fundraiser, which will provide supported homes that will ensure the most vulnerable members of our community find their 'Forever Homes'. Thank you to the sponsors and community who got involved in raising these much-needed funds. @headsofnoosataproom Fraser Island Boutique Beach Cottages @turbos\_wheelie\_clean @domain.com.au @teambodycorporate @lionwolfyoga @firstbatchcoffee @sunrise\_dental\_care @alwayscoolairconditioning @realestateaus @noosatigersafc @noosapirates @ghostair @sunshinecoastcraftbeertours @noosavillageriverresort @noosasprings @thinkblinktv @sumyungguys Country Trucker Caps And a massive thank you to the incredible team at Stay Property Group for supporting Sunshine Butterflies!💜

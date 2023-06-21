@@ -1,0 +1,7 @@
++++
+id = "CU7ANgxNa7K"
+date = "2021-10-12T23:04:16.478Z"
+src = "instagram/CU7ANgxNa7K.jpg"
+title = "2682738931567800010"
++++
+Today we celebrated the launch of our Learning Gardens and 'Purple Thumbs' program at ‘Our Backyard’ as part of ‘National Gardening Week’!🌱🌾 We welcomed special guests Mim McWilliams from Food Agribusiness Network FAN, Maroochy RSL president Michael Liddelow, Sunshine Gardens Damien Walsh, Megan Brabant and Rebecca Tindall from Gourmet Garden Australia and Meg Bolton from ABC Australia. They joined our Founder and CEO Leanne Walsh, Purple Thumbs program and Sunshine Butterflies staff for a delicious morning tea in our new space. Our guests then received an educational chat from CEO Leanne Walsh, Horticulturist Damien Walsh and Program Coordinators Leesa and Hamilton. 😃 It was so amazing to share our vision of the new Learning Gardens space and 'Purple Thumbs' with our visitors! Our guests were especially thrilled to receive a special gift of herb pots from our 'Purple Thumbs' program and imprint their own purple thumb on the wall. 💜 We finished off the morning with a ribbon-cutting to officially open the new Learning Gardens at ‘Our Backyard’. It was a fabulous morning at ‘Our Backyard’ learning about our 'Purple Thumbs' program and the benefits our new Learning Garden space will have on all our members living with disability as well as the community. 🌱

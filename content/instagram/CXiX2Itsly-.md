@@ -1,0 +1,7 @@
++++
+id = "CXiX2Itsly-"
+date = "2022-01-18T01:25:54.935Z"
+src = "instagram/CXiX2Itsly-.jpg"
+title = "2729849199418039486"
++++
+Sunshine Butterflies ‘Purple Thumbs’ program just finished their final week!🌱☘️ We have been so excited to have this program as part of our repertoire in 2021.😀 'Purple Thumbs' by Sunshine Butterflies is an educational gardening program at our Horticultural Outdoor Classroom and Learning Gardens at 'Our Backyard'. Over the last 13 weeks members in this program have learnt all about composting, gardening, pests and diseases, harvesting, how to utilise various fruits, herbs and vegetables in food and much more. We are so impressed with the wealth of knowledge our members have all gained in this educational program. Our ‘Purple Thumbs’ have even played an important role in our ‘Farmyard Cooking School’ Cookbook. They gave us helpful tips n tricks about composting, worms, chickens and more, which you can read all about in our cookbook. On their last day our members were awarded certificates of achievement and enjoyed a celebration all together! We are so proud of all our ‘Purple Thumbs’ and excited to see how they utilise their new gardening skills in their own backyards. 💜

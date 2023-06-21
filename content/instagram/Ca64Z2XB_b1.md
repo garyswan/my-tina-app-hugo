@@ -1,0 +1,7 @@
++++
+id = "Ca64Z2XB_b1"
+date = "2022-03-20T05:03:30.996Z"
+src = "instagram/Ca64Z2XB_b1.jpg"
+title = "2790790986069440245"
++++
+‘Purple Thumbs’ were thrilled to take a trip out to @foragefarms for a fun and educational day out. 🌱🐮 Forage Farms is a family operation located south of Gympie in the beautiful Mary Valley. Forage Farms follow Natural Sequence Farming philosophies where they aim to restore natural landscape function and regenerate their farm. The food produced is created without artificial fertilisers, chemicals and no nasties whatsoever. On their visit to the farm, our members learnt all about pigs, chickens, sheep and cattle as well as food production and landscape restoration. ‘Purple Thumbs’ educational gardening program have been loving their first 6 weeks learning about bees and honey, aquaculture, produce and waste, agriculture, farming and much more. They are taking so many valuable skills home with them to implement into their daily lives. Thanks to the wonderful team at forage farms who went above and beyond for Sunshine Butterflies members and staff, giving them an informative entertaining tour of their operating farm.💜 We can’t wait to visit again in the future!🙂
