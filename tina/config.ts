@@ -19,6 +19,7 @@ export default defineConfig({
       mediaRoot: "uploads",
       publicFolder: "static",
     },
+    // loadCustomStore: async () => {},
   },
   schema: {
     collections: [
